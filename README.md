@@ -30,7 +30,7 @@ Check out my repositories for more exciting projects! 🚀
 
 ## 📫 Contact Me  
 📧 Email: boyazid@hanyang.ac.kr  
-🌍 Location: Tashkent, Uzbekistan  
+🌍 Location: Ansan, South Korea  
 🔗 [LinkedIn](#) | [GitHub](#)  
 
 ---
